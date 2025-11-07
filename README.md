@@ -1,4 +1,4 @@
-# sohanpateSohan Patel | Computer Engineer
+# Sohan Patel | Computer Engineer
 
 🚀 Objective
 
